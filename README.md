@@ -1,1 +1,1 @@
- https://abrosnahat.github.io/seaBittle.github.io/
+ https://abrosnahat.github.io/seaBattle.github.io/
